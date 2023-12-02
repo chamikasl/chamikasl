@@ -16,7 +16,7 @@
 
  💬 Ask me about **anything [here](https://github.com/chamikasl/chamikasl/issues)**
 
- ⚡ " What Will People Say ", **I don't know, I don't care 🤷**
+ 🤷 "What Will People Say", I don't know, I don't care.
  
  </div>
  
